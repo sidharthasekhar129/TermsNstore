@@ -1,1 +1,1 @@
-# TermsNstore
+Terms of Service URL
